@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...Web development and android-Development,Trading,Stock market,Chart Analysing.
 - 💞️ I’m looking to collaborate on ...  Development Activities(Any),Stock markets talks .let's join...
 - 📫 How to reach me ...
--  https://instagram.com/heetkadiya?igshid=MzRlODBiNWFlZA==   (Instagram)
+-  https://instagram.com/heetkadiya                           (Instagram)
 -  www.linkedin.com/in/heet-kadiya-17824b259                  (Linkedin)   
 
 <!---

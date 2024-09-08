@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KadiyaheetChetanbhai
 - 👀 I’m interested in ...   Developing things.which are kinda usefull in daily life and could be used for full.
-- 🌱 I’m currently learning ...Web development and android-Development,Trading,Stock market,Chart Analysing.
+- 🌱 I’m currently learning ...Web development and android-Development,Stock market,Chart Analysing.
 - 💞️ I’m looking to collaborate on ...  Development Activities(Any),Stock markets talks .let's join...
 - 📫 How to reach me ...
 -  https://instagram.com/heetkadiya                           (Instagram)
